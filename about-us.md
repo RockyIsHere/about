@@ -2,4 +2,4 @@ Welcome to সম্পর্ক-Bangla Choti Golpo. We're dedicated to giving y
 
 We hope you enjoy our products as much as we enjoy offering them to you. If you have any questions or comments, please don't hesitate to contact us.
 
-Sincerely, Name, CEO Rocky
+Sincerely, Rocky, CEO
